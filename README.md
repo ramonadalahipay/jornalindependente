@@ -1,0 +1,2 @@
+# jornalindependente
+Diariu INDEPENDENTE
